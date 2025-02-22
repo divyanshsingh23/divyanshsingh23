@@ -1,1 +1,1 @@
-regular computer programmer
+i make things and post them 
